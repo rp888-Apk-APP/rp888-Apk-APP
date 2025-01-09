@@ -1,4 +1,4 @@
-p dir="auto"><strong>KLIK DISINI DOWNLOAD / UNDUH</strong> >>> <a href="https://9ved.short.gy/apk-login" rel="nofollow">Rp888 Online APK</a></p>
+<p dir="auto"><strong>KLIK DISINI DOWNLOAD / UNDUH</strong> >>> <a href="https://9ved.short.gy/apk-login" rel="nofollow">Rp888 Online APK</a></p>
 
 <p dir="auto"><a target="_blank" rel="noopener noreferrer" href="https://9ved.short.gy/jpslot"><img src="https://dalem.store/images/giftdaftarkun.gif" alt="Screenshot_14" style="max-width: 100%;"></a></p>
 
